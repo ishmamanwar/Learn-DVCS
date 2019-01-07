@@ -5,6 +5,7 @@
 We are going to show you how to make **meth**\
 Let us go through the steps:
   1. Buy Meth
+     > Always pick your dealer like you pick your girl
   2. Cook it hard
      - Keep it moist and shit bruh\
      
